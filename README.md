@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Fleursunflow
 - 👀 I’m interested in history, vintage, paint art
-- 🌱 I’m currently learning public sector accounting also AI in Orbit
+- 🌱 I’m fresh graduate of accounting
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me 
 
